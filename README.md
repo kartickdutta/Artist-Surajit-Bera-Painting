@@ -1,2 +1,18 @@
 # Artist-Surajit-Bera-Painting
 Artist Surajit Bera-Painting
+![PicsArt_07-01-01 03 31](https://github.com/kartickdutta/Artist-Surajit-Bera-Painting/assets/72213895/fe1608e9-3546-4246-a737-107ff0e9e8ff)
+![PicsArt_07-01-12 16 02](https://github.com/kartickdutta/Artist-Surajit-Bera-Painting/assets/72213895/f1b69fc7-6cc5-4441-8e42-8b1dde9fa48e)
+![PicsArt_07-01-12 18 52](https://github.com/kartickdutta/Artist-Surajit-Bera-Painting/assets/72213895/83432c7a-8b7e-4dcf-8f6e-e0e4ae27f741)
+![PicsArt_07-01-12 22 03](https://github.com/kartickdutta/Artist-Surajit-Bera-Painting/assets/72213895/321e6fad-5bd8-411c-8b7a-1a006b5e97cb)
+![PicsArt_07-01-12 29 36](https://github.com/kartickdutta/Artist-Surajit-Bera-Painting/assets/72213895/b8badb63-16e6-4360-87ac-5e1e7c00a10a)
+![PicsArt_07-01-12 32 06](https://github.com/kartickdutta/Artist-Surajit-Bera-Painting/assets/72213895/49494e2e-93eb-4f11-a790-62fdd2b839c2)
+![PicsArt_07-01-12 36 49](https://github.com/kartickdutta/Artist-Surajit-Bera-Painting/assets/72213895/6d3c3093-ef5f-4358-99d9-360cc733aaba)
+![PicsArt_07-01-12 46 24](https://github.com/kartickdutta/Artist-Surajit-Bera-Painting/assets/72213895/6406f46a-2db0-44bc-be84-5017e51261db)
+![PicsArt_07-01-12 51 57](https://github.com/kartickdutta/Artist-Surajit-Bera-Painting/assets/72213895/8e923627-e51f-433b-91cc-996fa9eaa486)
+![PicsArt_07-01-12 58 43](https://github.com/kartickdutta/Artist-Surajit-Bera-Painting/assets/72213895/18988a0c-9ada-474a-8a2a-36349e04a1ef)
+![PicsArt_10-30-11 02 38](https://github.com/kartickdutta/Artist-Surajit-Bera-Painting/assets/72213895/85c856c5-f8dc-41c3-bb2b-905256b14add)
+![PicsArt_10-30-12 00 47](https://github.com/kartickdutta/Artist-Surajit-Bera-Painting/assets/72213895/cbad639d-a31a-4e29-9775-7f57923a0d3a)
+![PicsArt_10-31-07 19 20](https://github.com/kartickdutta/Artist-Surajit-Bera-Painting/assets/72213895/62fec81c-33a0-43b2-b799-8265e42d7f64)
+![PicsArt_10-31-07 24 34](https://github.com/kartickdutta/Artist-Surajit-Bera-Painting/assets/72213895/4eb8d3dd-f629-4317-b8a1-3bcc0853b662)
+![IMG-20230523-WA0001](https://github.com/kartickdutta/Artist-Surajit-Bera-Painting/assets/72213895/6fcac6f1-8359-4db3-ac37-af1160e73014)
+![IMG-20230529-WA0000](https://github.com/kartickdutta/Artist-Surajit-Bera-Painting/assets/72213895/501f51dc-c59c-4363-bdf7-3364522803a8)
